@@ -1,7 +1,7 @@
 # Fala Dev!! Beleza ?
 
 - 👨🏽‍💻 -  Me chamo [Alexandra Bosschart](https://www.linkedin.com/in/alexandra-bosschart-b1250647);
-- 💜 - Atualmente sou Tech Recruiter e Mentora de RH na Digital College e Founder da Go Up;
+- 💜 - Atualmente sou Tech Recruiter e Mentora de Carreira na Digital College e Founder da Go Up;
 - 🦄 - Traço carreira com base na empregabilidade dos alunos da Digital College 
 - 💸 - Constantemente contrato os melhores talentos techs para empresas referência de mercado;:
 - Se alguma fez sentido pra você, entre em contato comigo.
